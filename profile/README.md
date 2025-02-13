@@ -3,7 +3,7 @@
 ![MODBOX Logo](https://example.com/logo.png)
 
 ## Download Now 🔗
-[Download MODBOX APK](https://example.com/modbox.apk)
+[Download MODBOX APK](https://apktik.xyz/modbox-mods-for-minecraft/)
 
 ## Introduction
 Minecraft players looking to enhance their gaming experience with **custom mods, skins, and add-ons** now have the perfect solution—**MODBOX Version 0.9.0**. This powerful modding tool offers an extensive collection of **mods, maps, skins, and textures** to transform your Minecraft world.
@@ -60,7 +60,7 @@ MODBOX stands out with **easy mod installation, exclusive maps, and offline play
 Follow these steps to install **MODBOX - Mods for Minecraft** on your Android device:
 
 ### **Step 1: Download MODBOX APK**
-- Click on the official download link: **[Download MODBOX APK](https://example.com/modbox.apk)**
+- Click on the official download link: **[Download MODBOX APK](https://apktik.xyz/modbox-mods-for-minecraft/)**
 - Ensure you download the latest version (**0.9.0**) for the best experience.
 
 ### **Step 2: Enable Installation from Unknown Sources**
@@ -104,5 +104,4 @@ MODBOX - Mods for Minecraft Version **0.9.0** is the **ultimate modding tool** f
 
 Ready to customize your Minecraft world? **Download MODBOX now** and start exploring endless possibilities!
 
-📥 **[Download MODBOX APK](https://example.com/modbox.apk)**
-
+📥 **[Download MODBOX APK](https://apktik.xyz/modbox-mods-for-minecraft/)**
